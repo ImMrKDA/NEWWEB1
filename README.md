@@ -1,1 +1,1 @@
-ANALYSING THE TYPOGRAPHY, THE IMAGES AND VIDEOS OF WEBSITES AND APPS
+Analysing The Typography, The Images And Videos Of Websites And Apps
